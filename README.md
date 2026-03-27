@@ -16,7 +16,7 @@
 IYA'S PROFILE
 <img src="https://github.com/user-attachments/assets/3e2967f7-83f0-4b42-9d71-6ad7102de2c5" width="26" height="21" />
 </h3>
-<h4><em>_゛ Won't the devil guide <strong>your</strong> hand for good luck ゛_</em></h4>
+<h4><em>゛ Won't the devil guide <strong>your</strong> hand for good luck ゛</em></h4>
 <h5>—————————— ꒰ ᧔ෆ᧓ ꒱ ——————————</h5>
 </td>
 </tr>
