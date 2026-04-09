@@ -23,7 +23,7 @@ IYA'S PROFILE
 
 <tr>
 <td align="center" width="450">
-<img src="https://media.discordapp.net/attachments/1260788226218524762/1485865151226974238/Untitled568_20260324125728.png?ex=69c36b42&is=69c219c2&hm=87fea30ac8a178b0f73e867597cab26b735e8684b40d8e7b3c23fbf29a7fb1bb&=&format=webp&quality=lossless&width=1162&height=953" width="100%" alt="Profile Image" />
+<img src="https://github.com/user-attachments/assets/51c736be-2bea-4d32-8aa8-fe20051bd036" width="100%" alt="Profile Image" />
 </td>
 <td colspan="2" valign="top">
 <p style="color:#ffffff; font-family:monospace;">
