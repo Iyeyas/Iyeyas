@@ -52,7 +52,7 @@ IYA'S PROFILE
 <h5>—————————— ꒰ ᧔ෆ᧓ ꒱ ——————————</h5>
 <p style="color:#ffffff; font-family:monospace;">
 <br><br>
-Hello as you know im iya. I have a passion for pony town especially lab roleplays as Ive been consistently joining a lot, and my hobbies include drawing, coding, crocheting, and 3D modeling. Im always happy to learn new things and dont mind if youd like to be friends with me!!
+Hello as you know I'm iya and I'm kind of a chud cause I hyperfixated on a freaking pony game, but wtv. I don't mind interacting so long as you whisper beforehand. If you manage to find this profile other than from PT then hi !!
 <br><br>‎
 <p align="center">
 <a href="https://en.pronouns.page/@iyeyas" style="color:#ffffff; text-decoration:none;">en.prns</a> ·
